@@ -1,4 +1,4 @@
 
 ## Мне нормально 
 
-![Image alt](https://akspic.ru/image/171545-graficheskij_dizajner-rabochij_process-dizajn-grafika-dizajner)
+![Image alt](https://i.pinimg.com/736x/73/cc/e4/73cce4210ab89615fb57149f09d15a7e.jpg)
